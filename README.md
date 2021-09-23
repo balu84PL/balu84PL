@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @balu84PL
-- 👀 I’m interested in Proe evo seccer on ps5
+- 👀 I’m interested in Proe evo soccer on ps5
 - 🌱 I’m currently learning english and html
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
